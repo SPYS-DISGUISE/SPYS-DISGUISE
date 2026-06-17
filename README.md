@@ -4,7 +4,7 @@ Multifandom ! music and peanuts enjoyer
 
 ✦ Click to listen! ↓
 
-# [![Listen on Spotify](https://img.shields.io/badge/Now%20Playing-Changes%20-%231DB954?logo=spotify&logoColor=white)](https://open.spotify.com/track/3HC6U39266ytr7fMW9M2Mz) ㅤ.. 🎶
+ [![Listen on Spotify](https://img.shields.io/badge/Now%20Playing-Changes%20-%231DB954?logo=spotify&logoColor=white)](https://open.spotify.com/track/3HC6U39266ytr7fMW9M2Mz) ㅤ.. 🎶
 
 
 • I usually play Pony Town, and I usually stay in the TF2 zone. I don't talk much, but if you'd like to int, feel free to do so. But I will emphasize that I'm not very good at speaking English, and I'm bad at carrying on conversations. 
