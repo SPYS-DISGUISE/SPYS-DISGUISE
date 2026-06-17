@@ -12,5 +12,8 @@
 
 Find me on other social media:
 
-ig: https://www.instagram.com/microwaveworm__?igsh=MTV6enhlc2IxYndiNA==
+# ✦ ig : https://www.instagram.com/microwaveworm__?igsh=MTV6enhlc2IxYndiNA==
 
+# ✦ Discord :
+cuddlesundhugs1
+https://discord.com/users/1277331396628840560
