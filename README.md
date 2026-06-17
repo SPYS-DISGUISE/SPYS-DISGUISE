@@ -6,4 +6,4 @@
 [![Listen on Spotify](https://img.shields.io/badge/Now%20Playing-Changes%20-%231DB954?logo=spotify&logoColor=white)](https://open.spotify.com/track/3HC6U39266ytr7fMW9M2Mz) ㅤ.. 🎶
 
 
-<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/ed4059bb-2dde-49ef-bc80-316715b252c1" /> 
+  <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/ed4059bb-2dde-49ef-bc80-316715b252c1" /> 
