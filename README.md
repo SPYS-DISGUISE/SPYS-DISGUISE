@@ -1,5 +1,5 @@
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-⌞<img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/45527f17-ac44-4f9d-807a-af0cd0dffeaf" />⌝
+<img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/45527f17-ac44-4f9d-807a-af0cd0dffeaf" />
 
 ✦ 
 
@@ -12,3 +12,4 @@
 <img width="400" height="20" alt="Image" src="https://github.com/user-attachments/assets/779a83c9-0977-4bce-bbe8-61b114e464d0" />
 
 
+❀ I usually play Ponytown, and I usually stay in the TF2 zone. I don't talk much, but if you'd like to int, feel free to do so. But I will emphasize that I'm not very good at speaking English, and I'm bad at carrying on conversations. 
