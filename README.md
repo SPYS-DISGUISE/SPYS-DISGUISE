@@ -14,7 +14,7 @@ Multifandom ! music and peanuts enjoyer
 Find me on other social media:
 
 # ✦ Ig : 
-https://www.instagram.com/microwaveworm__?igsh=MTV6enhlc2IxYndiNA==
+https://www.instagram.com/cakebugjoy?igsh=aThvYTNlYjM1bjVt
 
 # ✦ Discord :
 cuddlesundhugs1
