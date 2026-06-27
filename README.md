@@ -14,9 +14,9 @@ Multifandom ! music and peanuts enjoyer
 
 *Eng/Esp • I usually play Pony Town, I don't talk much, but if you'd like to int, feel free to do so. But I will emphasize that I'm not very good at speaking English, and I'm bad at carrying on conversations.*
 
-<img width="400" height="20" alt="Image" src="https://github.com/user-attachments/assets/779a83c9-0977-4bce-bbe8-61b114e464d0" /><img width="400" height="20" alt="Image" src="https://github.com/user-attachments/assets/779a83c9-0977-4bce-bbe8-61b114e464d0" />
 
-***Find me on other social media:***
+
+📌 ***Find me on other social media:***
 
 # ✦ Ig : 
 https://www.instagram.com/microwaveworm__?igsh=MTV6enhlc2IxYndiNA==
