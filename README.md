@@ -5,6 +5,8 @@ Multifandom ! music and peanuts enjoyer
 
 ## <img width="40" height="19" alt="Image" src="https://github.com/user-attachments/assets/97930222-b368-4e11-8550-51d5630953a4" /> Heya! I'm Daniel. But you can also call me Jonathan, Cakebug, Venomous, Cuddles, or whatever you like.
 
+ㅤㅤㅤㅤ ㅤㅤ
+
 ✦ Click to listen! ↓
 
  [![Listen on Spotify](https://img.shields.io/badge/Now%20Playing-Changes%20-%231DB954?logo=spotify&logoColor=white)](https://open.spotify.com/track/3HC6U39266ytr7fMW9M2Mz) ㅤ.. 🎶
