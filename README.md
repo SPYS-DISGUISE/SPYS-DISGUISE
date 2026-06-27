@@ -3,7 +3,7 @@ Multifandom ! music and peanuts enjoyer
 <img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/45527f17-ac44-4f9d-807a-af0cd0dffeaf" />ㅤㅤ ㅤㅤ
 
 
-****– Heya! I'm Daniel. But you can also call me Jonathan, Cakebug, Venomous, Cuddles, or whatever you like.****
+****– Heya! I'm Daniel. But you can also call me Jonathan, Cakebug, Venomous, Cuddles, or whatever you like. I like to draw, play videogames, make paper dolls and other things........ and peanuts, ofc......****
 
 ㅤㅤㅤㅤ ㅤㅤ
 
