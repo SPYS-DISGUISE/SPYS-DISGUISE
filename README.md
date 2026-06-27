@@ -5,7 +5,7 @@ Multifandom ! music and peanuts enjoyer
 
 ****– Heya! I'm Daniel. But you can also call me Jonathan, Cakebug, Venomous, Cuddles, or whatever you like.****
 
-I like to draw, play videogames, make paper dolls and other things........ and peanuts, ofc......
+I like to draw, play videogames, make paper dolls and other things...... and peanuts, ofc......
 
 ㅤㅤㅤㅤ ㅤㅤ
 
