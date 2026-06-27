@@ -2,7 +2,8 @@ Multifandom ! music and peanuts enjoyer
 
 <img width="500" height="281" alt="Image" src="https://github.com/user-attachments/assets/45527f17-ac44-4f9d-807a-af0cd0dffeaf" />
 
-# Heya! I'm Daniel. But you can also call me Jonathan, Cakebug, Venomous, Cuddles, or whatever you like.
+
+## <img width="40" height="19" alt="Image" src="https://github.com/user-attachments/assets/97930222-b368-4e11-8550-51d5630953a4" /> Heya! I'm Daniel. But you can also call me Jonathan, Cakebug, Venomous, Cuddles, or whatever you like.
 
 ✦ Click to listen! ↓
 
